@@ -2,7 +2,7 @@
 - 👀 I’m interested in  создание игр
 - 🌱 I’m currently learning  в школе
 - 💞️ I’m looking to collaborate всех
-- 📫  Связьж по телеграму: @AnimeTyane
+- 📫  Связь по телеграму: @AnimeTyane 
 
 <!---
 Neizvesnno/Neizvesnno is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
