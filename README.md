@@ -1,2 +1,3 @@
-- 👋 Hi, I’m Pavel
-- 📫  telegram: @lucky777strike 
+- 👋 Hi, I’m Pavlo Yurchenko
+- telegram: @lucky777strike
+- linkedIn: https://www.linkedin.com/in/pavlo-yurchenko-5b416941a/
