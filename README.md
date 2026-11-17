@@ -1,3 +1,3 @@
-- Pavlo Yurchenko
-- telegram: @lucky777strike
-- linkedin: https://www.linkedin.com/in/pavlo-yurchenko-5b416941a/
+· Pavlo Yurchenko
+· [LinkedIn](https://www.linkedin.com/in/pavlo-yurchenko-5b416941a/)
+· Telegram [@lucky777strike](https://t.me/lucky777strike)
